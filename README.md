@@ -3,3 +3,5 @@
 woah. Ok whatever ngl there's nothing here. Just go my strawpage guys
 
 https://singularityofanother.straw.page
+
+<img width="418" height="561" alt="image" src="https://github.com/user-attachments/assets/a868028d-a736-49bb-a90c-ffb20e2c2b55" />
