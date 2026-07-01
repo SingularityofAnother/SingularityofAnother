@@ -2,9 +2,8 @@
 
 
 
-woah. Ok whatever ngl there's nothing here. Just go my strawpage guys
-
-(https://singularityofanothermenu.straw.page)
+i dont really care enough to actually do ts so just go to my strawpage ok
+()
 
 
 ![reaction pics](https://github.com/user-attachments/assets/097f6125-a073-499e-b57a-9509012e9dee)
